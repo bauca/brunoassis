@@ -1,3 +1,1 @@
-## Welcome to Bruno Assis webpage.
-
-
+## Welcome to Bruno Assis' webpage.
